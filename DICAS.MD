@@ -7,4 +7,4 @@ Dicas para passar na faculdade:
 6 - organize seu tempo
 7 - faça grupo de estudos
 8 - começe a acumular as horas complementares des de cedo
-
+9 - não va no bar
