@@ -8,3 +8,4 @@ Dicas para passar na faculdade:
 7 - faça grupo de estudos
 8 - começe a acumular as horas complementares des de cedo
 
+10 - jogar roblox as vezes
